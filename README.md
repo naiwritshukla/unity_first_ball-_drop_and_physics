@@ -7,4 +7,4 @@ this is my first ever thing made with unity and gonna make more :)
  naiwritshukla@gmail.com
  
  made  
-         1By naiwrit
+         By naiwrit
